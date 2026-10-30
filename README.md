@@ -59,8 +59,8 @@ I’m a Telecommunications Engineer passionate about Cloud Computing, Platform E
 
 ## 🌍 Languages
 
-* 🇪🇸 Spanish: Native
-* 🇬🇧 English: Professional Working Proficiency
+* Spanish: Native
+* English: Professional Working Proficiency
 ---
 
 ## 📫 Let’s Connect!
